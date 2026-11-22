@@ -1,1 +1,0 @@
-# samsung-galaxy-archive
